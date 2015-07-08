@@ -1,0 +1,1 @@
+Projeto da disciplina projeto 1, do curso de ciência da computação, na Universidade Federal de Campina Grande - UFCG
